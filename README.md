@@ -7,7 +7,7 @@
 </p>
 
 
-
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&pause=1000&color=F70000&background=000000&width=435&lines=With+satan+himself+by+my+side!!!!;And+i'll+show+the+world%E2%80%A6;That+tonight+and+forever%E2%80%A6;The+name+to+remember%E2%80%99s%E2%80%A6;The+name+Edward+Hyde!!!)
 
 <p align="center">
 	
