@@ -11,7 +11,7 @@
 
 <p align="center">
 	
-<sup><sub>[strawpage](https://hermesdisorder.straw.page/)</sub></sup> , <sup><sub>[rentry](https://rentry.co/holymoly-)</sub></sup> , <sup><sub>[atabook](https://hadestown.atabook.org/)</sub></sup> , <sup><sub>[prns.page](https://en.pronouns.page/@orpheusofthrace)</sub>
+<sup><sub>[strawpage](https://edward-hyde.straw.page/)</sub></sup> , <sup><sub>[rentry](https://rentry.co/holymoly-)</sub></sup> , <sup><sub>[atabook](https://hadestown.atabook.org/)</sub></sup> , <sup><sub>[prns.page](https://en.pronouns.page/@orpheusofthrace)</sub>
 
 </p>
 <p align="center">
