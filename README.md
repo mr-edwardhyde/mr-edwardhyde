@@ -1,13 +1,7 @@
 <p align="center">
+	
+![](https://external-media.spacehey.net/media/sOQiFfFEODDcW88R6Wlh8w0XL_DtpHsaYGjwGtVqYfpQ=/https://media1.tenor.com/m/euFNqYDaFQgAAAAd/mazm-jekyll-and-hyde.gif)
 
-![](https://komarev.com/ghpvc/?username=hadestovvn&label=georgesquared_canon&color=grey)
-
-
-
-</p>
-
-
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&pause=1000&color=F70000&background=000000&width=435&lines=With+satan+himself+by+my+side!!!!;And+i'll+show+the+world%E2%80%A6;That+tonight+and+forever%E2%80%A6;The+name+to+remember%E2%80%99s%E2%80%A6;The+name+Edward+Hyde!!!)
 
 <p align="center">
 	
@@ -20,11 +14,13 @@
   </a>
 </p>
 
-<details>
-<summary>pony town rules</summary>
-<sup><sub>c+h is allowed always
+</p>
 
-dniuid/dniuf when busy status
+![](https://komarev.com/ghpvc/?username=hadestovvn&label=georgesquared_canon&color=grey)
 
-do not copy my ponies
-</details>
+
+
+</p>
+
+
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&pause=1000&color=F70000&background=000000&width=435&lines=With+satan+himself+by+my+side!!!!;And+i'll+show+the+world%E2%80%A6;That+tonight+and+forever%E2%80%A6;The+name+to+remember%E2%80%99s%E2%80%A6;The+name+Edward+Hyde!!!)
