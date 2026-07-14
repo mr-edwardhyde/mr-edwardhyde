@@ -7,7 +7,7 @@
 
 
 	
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sup><sub>[strawpage](https://edward-hyde.straw.page/)</sub></sup> , <sup><sub>[rentry](https://rentry.co/mr-edwardhyde)</sub></sup> , <sup><sub>[新book](https://hadestown.atabook.org/)</sub></sup> , <sup><sub>[prns.page](https://en.pronouns.page/@edward-hyde)</sub>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sup><sub>[strawpage](https://edward-hyde.straw.page/)</sub></sup> ![](https://64.media.tumblr.com/9871b55f370c461d391ed5382119ebc4/1a2a861156920619-0f/s75x75_c1/932bf6e11199ac93829cca94f5c279fa86c7caee.gifv) <sup><sub>[rentry](https://rentry.co/mr-edwardhyde)</sub></sup> ![](https://64.media.tumblr.com/9871b55f370c461d391ed5382119ebc4/1a2a861156920619-0f/s75x75_c1/932bf6e11199ac93829cca94f5c279fa86c7caee.gifv) <sup><sub>[新book](https://hadestown.atabook.org/)</sub></sup> ![](https://64.media.tumblr.com/9871b55f370c461d391ed5382119ebc4/1a2a861156920619-0f/s75x75_c1/932bf6e11199ac93829cca94f5c279fa86c7caee.gifv) <sup><sub>[prns.page](https://en.pronouns.page/@edward-hyde)</sub>
 ⠀⠀⠀⠀⠀⠀⠀⠀
 
 
