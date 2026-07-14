@@ -20,7 +20,7 @@
 
 </p>
 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://komarev.com/ghpvc/?username=hadestovvn&label=jekyll_x_utterson_canon&color=ff0000&style=flat-square)
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://komarev.com/ghpvc/?username=hadestovvn&label=jekyll_x_utterson_canon&color=ff0000&style=for-the-badge)
 
 </p>
 
