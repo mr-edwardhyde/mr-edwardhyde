@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&size=10&pause=1000&color=F70000&repeat=false&width=435&lines=the+strange+case+of+dr.+jekyll+and+mr.+hyde%2Flaptop%2C)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&size=10&pause=1000&color=F70000&repeat=false&width=435&lines=the+strange+case+of+dr.+jekyll+and+mr.+hyde%2C)
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&size=10&pause=1000&color=F70000&repeat=false&width=435&lines=Best+view+on+computer%2Flaptop.%2C)
