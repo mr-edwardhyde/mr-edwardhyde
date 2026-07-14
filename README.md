@@ -1,6 +1,7 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://64.media.tumblr.com/8ccc4eb654cb479ac29b1ebd9efbeb2f/c74de60fc71203bc-e4/s75x75_c1/6d0137ecce59c133b902f08048acdbb2dc4ed333.gifv)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&size=10&pause=1000&color=F70000&repeat=false&width=435&lines=the+strange+case+of+dr.+jekyll+and+mr.+hyde%2Flaptop%2C)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&size=10&pause=1000&color=F70000&repeat=false&width=435&lines=Best+view+on+computer%2Flaptop%2C)
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&size=10&pause=1000&color=F70000&repeat=false&width=435&lines=Best+view+on+computer%2Flaptop.)
 
 	
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://external-media.spacehey.net/media/sOQiFfFEODDcW88R6Wlh8w0XL_DtpHsaYGjwGtVqYfpQ=/https://media1.tenor.com/m/euFNqYDaFQgAAAAd/mazm-jekyll-and-hyde.gif)
